@@ -1,2 +1,2 @@
 # Delta-
-this is our new journey
+this is our new journey..
